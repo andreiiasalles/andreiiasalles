@@ -1,10 +1,16 @@
 ### Hi there 👋
+![1a25138b1d5523d3bcc86aa065fc5f18](https://github.com/andreiiasalles/andreiiasalles/assets/57154658/786887b8-7a97-4abb-8018-763eeaf15f4b)
 
-<img src="/andreiiasalles/1a25138b1d5523d3bcc86aa065fc5f18.gif">
+![27853a2bd49394031409611d5a1fd91a](https://github.com/andreiiasalles/andreiiasalles/assets/57154658/ec68ebe5-8ea2-467b-a9fe-c7350d58baad)
 
+![35ae65e72b11ce73f7bc4b758c7b6a48](https://github.com/andreiiasalles/andreiiasalles/assets/57154658/3e050f94-dc35-4fcf-819b-c9fcd8ce7188)
 
-<!--
+<!--![4XCW](https://github.com/andreiiasalles/andreiiasalles/assets/57154658/956a9c19-900e-4ca5-b976-3f58b67753b4)
+
+![5WWDUYgIq9u2FYNGIGSOBEX2g8HGDsiSgh6RxU9dj74zxj3IhZdFPNlMMED1vAao](https://github.com/andreiiasalles/andreiiasalles/assets/57154658/36fbd74c-f80f-40f9-85f8-658062a8d626)
+
 **andreiiasalles/andreiiasalles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 Here are some ideas to get you started:
 
