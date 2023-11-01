@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-<img src="/andreiiasalles/1a25138b1d5523d3bcc86aa065fc5f18.gif">
+![5WWDUYgIq9u2FYNGIGSOBEX2g8HGDsiSgh6RxU9dj74zxj3IhZdFPNlMMED1vAao](https://github.com/andreiiasalles/andreiiasalles/assets/57154658/26a56f4c-e9c2-4715-b422-44217b40a610)
+
 
 
 <!--
