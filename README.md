@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img src="/andreiiasalles/1a25138b1d5523d3bcc86aa065fc5f18.gif">
+
 
 
 <!--
